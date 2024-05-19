@@ -1,1 +1,1 @@
-**THƯ VIỆN LƯU TRỮ FILE MP3**
+**THƯ VIỆN LƯU TRỮ FILE MP3 VÀ COVERS**
